@@ -1,6 +1,5 @@
 
-Krom ve Yusuf tarafından yapılan Chondix Bot v1 :)
-
+ü
 [Discord](https://discord.com/invite/SANuqz8vNq)
 Öncelikle Selam,
 Bu mesajı okuyorsan altyapıyı almışsın demektir :)
